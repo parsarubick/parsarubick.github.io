@@ -1,1 +1,0 @@
-# parsarubick.github.io
